@@ -1,2 +1,1 @@
-Join For More
-- https://t.me/sunlightfn
+https://t.me/sunlightfnv1
